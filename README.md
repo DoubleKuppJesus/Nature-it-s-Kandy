@@ -1,0 +1,2 @@
+# Nature-it-s-Kandy
+Nature's Kandy LLC. is a Limited Liability Corporation with a purpose. our Mantra is "Tough times don't last, Tough people do", and with our New CBD Infuzed hygiene and sports products we can help aide and assist recovery in athletes and sooth the aches of growing pains in your children's legs. it is %100 safe and is legal in all 50 states of America, don't cheat yourself out of an opportunity to discover Nature's Kandy and what it has to offer to you!
